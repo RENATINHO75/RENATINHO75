@@ -7,4 +7,4 @@ Meu nome é **Renato Spekaliski**
 
 -Estou estudando no Colégio luiz de Jesus Correia
 
-![](https://media1.tenor.com/m/vEiEa0sHvcUAAAAC/faz-ol-lula.gif)
+
