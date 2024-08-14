@@ -10,8 +10,7 @@ Estou estudando no Colégio luiz de Jesus Correia
 
 **VOCÊ PODE ENTRAR EM CONTATO COMIGO PELO EMAIL:**
 
-
-             rspekaliski@gmail.com
+rspekaliski@gmail.com
 
 
 ![](https://media.tenor.com/LD-Bgk2DQPoAAAAi/messi-copa-del-mundo-2022.gif)
